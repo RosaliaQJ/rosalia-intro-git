@@ -2,5 +2,5 @@
 
 *Parece que esto está saliendo*
 
-*Vamos joder la marrana aquí*
+*Vamos a joder la marrana aquí*
 
